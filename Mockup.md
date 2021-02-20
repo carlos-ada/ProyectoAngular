@@ -1,3 +1,3 @@
 # Ventana 1
 
-# Ventana 2
+![enter image description here](https://i.imgur.com/kBdAe09.jpg)
